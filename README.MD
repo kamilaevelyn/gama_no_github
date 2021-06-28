@@ -1,0 +1,1 @@
+Estou gostando muito do curso de Git, a didática do professor é muito boa e estou conseguindo aprender os conceitos e colocar em prática.
